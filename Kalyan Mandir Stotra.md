@@ -1,6 +1,3 @@
-Got it! Here's the **revised version** where each section includes the **transcript, meaning, and interpretation** for a more comprehensive presentation:
-
----
 
 ### **1. ध्याना नेस भवतोष (Dhyan Nes Bhavatosh)**  
 - **Transcript:** "Dhyan Nes Bhavatosh" focuses on correct pronunciation, particularly the half letters in "Dhyan" and the aspirated sound in "Bhavatosh." The nasal sound (bindu) adds depth, enhancing the verse's rhythm and spiritual flow.  
@@ -84,6 +81,4 @@ Got it! Here's the **revised version** where each section includes the **transcr
 - **Meaning:** Serene and profound like the foundation of a mountain.  
 - **Interpretation:** This verse reminds us of the strength and resilience required to stay grounded and balanced in life. Like the roots of a mountain, the soul should remain unshaken by life’s challenges.
 
----
 
-This combined format now provides **pronunciation guidance**, **meaning**, and **interpretation**, ensuring it is thorough and easy to follow for readers at all levels of understanding. Let me know if you'd like to add anything more!
